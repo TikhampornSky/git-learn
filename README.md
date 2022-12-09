@@ -5,3 +5,5 @@
 free shipping
 
 gggggggsddfavaann88877ttrtvvsbsbss...
+
+Git from directory1
